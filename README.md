@@ -1,1 +1,1 @@
-A great computer scientist in the making- Bright O. Iyahen
+A great computer scientist in the making- Bright Osahenhen Iyahen
